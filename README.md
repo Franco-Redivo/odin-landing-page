@@ -2,14 +2,14 @@
 
 
 
-image credits
+Image credits
 
 - Nick Kwan. instagram: nickkwanhk
 
--Evgeny Tchebotarev. instagram: ev25.4
+- Evgeny Tchebotarev. instagram: ev25.4
 
--pixabay
+- pixabay
 
--Andrey Grushnikov. instagram: andrey_nashi
+- Andrey Grushnikov. instagram: andrey_nashi
 
--Tien Nguyen
+- Tien Nguyen
